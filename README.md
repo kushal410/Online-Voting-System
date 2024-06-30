@@ -144,9 +144,9 @@ Then Add Email and Password
 
 ## For Sponsor or Projects Enquiry
 
-1. Email - dhakaldeepam@gmail.com
-2. Instagram - [diipam-dhakal] "Diipam Dhakal On instagram"
-3. WhatsApp - [9817911717]
+1. Email - kushalniraula41@gmail.com
+2. Instagram - [kushal_vip] "Kushal Niraula On instagram"
+3. WhatsApp - [9825331684]
 
 ## How the system works
 
